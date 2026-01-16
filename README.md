@@ -70,7 +70,8 @@ I focus on:
 
 ## 📩 Let’s Connect / Hire Me
 If you like what you see and want **help building your Web3 product**, feel free to reach out:  
-- LinkedIn: [Your LinkedIn Profile]( https://www.linkedin.com/in/taiwo-olajimi-9b3a4a316?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app )  
+- Contact Details on my Git profile 😊
+
 - Email: taiwoolajimi@gmail.com  
 
 ---
